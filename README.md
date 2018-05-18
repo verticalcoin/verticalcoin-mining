@@ -15,3 +15,10 @@ http://vlt.shit.fish
 http://futurecoins.club/
 
 https://pool.masterhash.us/
+
+https://bsod.pw/
+
+https://gos.cx/
+
+https://labbinarymining.com/
+
